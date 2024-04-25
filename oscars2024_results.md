@@ -129,31 +129,31 @@ PG](Motion_Picture_Association_film_rating_system "wikilink").[41]
 
 ### Awards
 
-* Christopher Nolan, Best Picture co-winner and Best Director winner
+* Christopher Nolan was the Best Picture co-winner and the Best Director winner
 
-* Cillian Murphy, Best Actor winner
+* Cillian Murphy was Best Actor winner
 
-* Emma Stone, Best Actress winner
+* Emma Stone was Best Actress winner
 
-* Robert Downey Jr., Best Supporting Actor winner
+* Robert Downey Jr. was Best Supporting Actor winner
 
-* Da'Vine Joy Randolph, Best Supporting Actress winner
+* Da'Vine Joy Randolph was Best Supporting Actress winner
 
-* Justine Triet and Arthur Harari, Best Original Screenplay winners
+* Justine Triet and Arthur Harari was Best Original Screenplay winners
 
-* Mstyslav Chernov, Best Documentary Feature Film co-winner
+* Mstyslav Chernov was Best Documentary Feature Film co-winner
 
-* Jonathan Glazer, Best International Feature Film winner
+* Jonathan Glazer was Best International Feature Film winner
 
-* Hayao Miyazaki and Toshio Suzuki, Best Animated Feature winners
+* Hayao Miyazaki and Toshio Suzuki was Best Animated Feature winners
 
-* Wes Anderson, Best Live Action Short co-winner
+* Wes Anderson was Best Live Action Short co-winner
 
-* Ludwig Göransson, Best Original Score winner
+* Ludwig Göransson was Best Original Score winner
 
-* Billie Eilish and Finneas O'Connell, Best Original Song winners
+* Billie Eilish and Finneas O'Connell was Best Original Song winners
 
-* Takashi Yamazaki, Best Visual Effects co-winner
+* Takashi Yamazaki was Best Visual Effects co-winner
 
 ### Categories, Winners and Nominees
 
